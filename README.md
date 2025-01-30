@@ -1,2 +1,2 @@
 # Sam_Davin_Practice
-Samuel Cadiz
+Samuel Cadiz and Davin Glynn
